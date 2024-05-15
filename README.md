@@ -1,1 +1,1 @@
-# galtville.com
+Experience tranquil nights with our [mosquito-killing solution](https://galtville.com/), boasting minimal noise emission. At just 20 decibels, our device ensures a serene environment conducive to undisturbed sleep. Bid farewell to the buzz of mosquitoes without sacrificing your peace of mind. With our low-noise technology, enjoy a restful slumber knowing that your sleep is undisturbed by pesky pests.
